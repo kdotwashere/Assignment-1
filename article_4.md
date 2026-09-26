@@ -1,4 +1,5 @@
 # Financial
+![Financial](stock.jpg)
 
 Plan for the next 5 years:
 

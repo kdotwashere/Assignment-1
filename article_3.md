@@ -14,3 +14,5 @@ Plan for the next 5 years:
   
 - Get 5 Relevant Certifications especially two hards ones that show actual skill
   
+Citation:
+ Chatgpt generated image

@@ -1,5 +1,5 @@
 # Recreation
-
+![Recreation](IMG_5914.jpeg)
 Plan for the next 5 years:
 
 - Stay consistent in the gym and establish an actual routine in the next 5 years

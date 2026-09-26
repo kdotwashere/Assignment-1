@@ -1,5 +1,5 @@
 # Professional
-![Professional](ChatGPT Ima.png)
+![Professional](professional.png)
 
 Plan for the next 5 years:
 

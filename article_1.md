@@ -1,14 +1,15 @@
-#Family Goals in the next Five years
+# Family Goals in the next Five years
 ![my family](IMG_6640.JPG)
-My goals for my family are numerous but I would say some of them range from 
 
--Have a family trip
+My goals for my family are numerous but I would say some of them range from:
 
--Visit Bali
+- Have a family trip
 
--Go on 5 road trips
+- Visit Bali
 
--Each of my brothers Achieve their academic goals
+- Go on 5 road trips
+
+- Each of my brothers Achieve their academic goals
 
 - Parents get ready for retirement 
 
